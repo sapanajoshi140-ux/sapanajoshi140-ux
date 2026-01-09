@@ -4,6 +4,7 @@ Take a break(❁´◡`❁)
 
 ## 🌐 Socials:
 Linkedin:https://www.linkedin.com/in/sapana-joshi-370944397/
+
 Email:sapanajoshi140@gmail.com
 
 # 💻 Tech Stack:
